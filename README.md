@@ -1,4 +1,4 @@
-hello! please view my rentry to get to know me! x3
+hello! please view my rentry for more info and my strawpage for some of my fav things!!
 
 <!---
 nillanilla/nillanilla is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
